@@ -3,4 +3,4 @@ I'm Cinniemwaura, new to Github and currently teaching myself how to code! EXCIT
 I'm currentiy HTML and Javascript and hope to update this profile as I go on
 Reach me at:cynthiamwaura908@gmail.com
 
-Good DAY TO YOU!
+Good day to you!
